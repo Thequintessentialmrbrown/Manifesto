@@ -1,0 +1,2 @@
+# Manifesto
+Just another Gospel
